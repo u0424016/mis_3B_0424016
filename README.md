@@ -8,4 +8,4 @@ oosad 3B
 
 ![NKFUST](1.jpg "林園")
 
-[![Everything Is AWESOME](https://img.youtu.be/TAgVVc5hAiE/12.jpg)](https://youtu.be/TAgVVc5hAiE "Everything Is AWESOME")
+[![長途夜車 Southbound Night Bus](https://img.youtu.be/TAgVVc5hAiE/0.jpg)](https://youtu.be/TAgVVc5hAiE "長途夜車 Southbound Night Bus")
